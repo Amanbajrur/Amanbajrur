@@ -1,1 +1,1 @@
-From covering trending searches on AI Tools on Google to bringing you the latest news on AI, we’re committed to keeping you informed and engaged.
+From covering trending searches on Google to bringing you the latest Open source Codes on AI tools, we’re committed to keeping you informed and engaged.
